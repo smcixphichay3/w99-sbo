@@ -31,4 +31,4 @@ Line : **[คลิ๊ก](https://lin.ee/cql1qpi)**
 
 ติดต่อ แทงหวยออนไลน์ ได้ที่นี้ 👉 แอด Line : **[คลิ๊ก](https://lin.ee/cql1qpi)** [มี @ ข้างหน้าด้วยนะ] 👈 🔥🔥🔥
 
-![](https://komarev.com/ghpvc/?username=w99-sbo&style=flat-square&color=blue)"
+![](https://komarev.com/ghpvc/?username=smcixphichay3&style=flat-square&color=blue)"
